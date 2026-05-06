@@ -1,4 +1,4 @@
-
+updated bridger western Scripts offers the most advanced bridger western Script, with one-hit kill and custom skins. Perfect for dominating any match.
 
 
 
